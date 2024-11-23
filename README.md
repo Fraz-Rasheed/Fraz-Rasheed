@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Mobile Applications (native -android) ,and Websites...
 - 💞️ I'm looking to collaborate with someone , from whom i can learn , and give my best to them .
 - 📫 You can reach me through mbl phn : 03054825351 or email: kratosfraz1@gmail.com
+- Doing BS-CS from UMT
 
 
 <!---
